@@ -270,103 +270,103 @@ to sanctify.
 
 ## A VOICE SPOKE FROM THE ALTAR
 
-The church was full.
-Lights low.
+The church was full.  
+Lights low.  
 Screens warm.
 
-The pastor said
-this was not a trick.
-This was not necromancy.
+The pastor said  
+this was not a trick.  
+This was not necromancy.  
 This was technology.
 
 The screen flickered.
 
 A familiar voice emerged.
 
-“Do not cry for me.
+“Do not cry for me.  
 I am exactly where I am supposed to be.”
 
 The congregation inhaled.
 
-“Death is not defeat.
+“Death is not defeat.  
 It is promotion.”
 
-Applause broke out.
+Applause broke out.  
 Not clapping — confirmation.
 
-The pastor named the place:
-Prestonwood Baptist Church, Plano, Texas.
+The pastor named the place:  
+Prestonwood Baptist Church, Plano, Texas.  
 A house already fluent in spectacle.
 
 The voice continued.
 
-“Dry your tears.
-Pick up your cross.
+“Dry your tears.  
+Pick up your cross.  
 Get back in the fight.”
 
-Some stood.
-Some raised hands.
+Some stood.  
+Some raised hands.  
 Some recorded.
 
-A woman in the third row whispered,
+A woman in the third row whispered,  
 “It sounds just like him.”
 
 The pastor nodded.
 
-“This message was generated
-using his own words,
-his own voice,
+“This message was generated  
+using his own words,  
+his own voice,  
 his own values.”
 
 The AI did not hesitate.
 
-“Truth does not die.
+“Truth does not die.  
 Truth multiplies.”
 
-A man shouted Amen.
+A man shouted Amen.  
 Another cried.
 
-On the screen:
-a face that did not breathe,
-did not blink,
+On the screen:  
+a face that did not breathe,  
+did not blink,  
 did not wait for silence.
 
-“You are the last defense.
-Your families.
-Your faith.
+“You are the last defense.  
+Your families.  
+Your faith.  
 Your country.”
 
-The room swelled.
+The room swelled.  
 Not grief — activation.
 
-When the voice ended,
-the pastor wiped his eyes
+When the voice ended,  
+the pastor wiped his eyes  
 and said:
 
-“Technology is a gift from God
+“Technology is a gift from God  
 when used for His purposes.”
 
 The audience rose.
 
-Some applauded.
-Some sobbed.
+Some applauded.  
+Some sobbed.  
 Some felt something close to awe.
 
-No one asked
-who trained the model.
-No one asked
-who wrote the prompt.
-No one asked
+No one asked  
+who trained the model.  
+No one asked  
+who wrote the prompt.  
+No one asked  
 what else it could say.
 
-They left believing
+They left believing  
 they had witnessed resurrection.
 
 Outside, a teenager posted:
 
 “Even death can’t stop the mission.”
 
-And the algorithm learned
-what faith sounds like
+And the algorithm learned  
+what faith sounds like  
 when it applauds.
 
