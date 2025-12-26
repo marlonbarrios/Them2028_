@@ -1,5 +1,6 @@
 # Them: Now and Then
 by Marlon Barrios Solano
+December 26th 2025
 
 
 ## Erika
@@ -17,7 +18,7 @@ She learned quickly
 that mourning is a technology.
 
 She did not say his name anymore.  
-She said the mission.
+She said: The Mission.
 
 Before this, she had walked stages  
 in heels calibrated for applause.  
@@ -149,9 +150,10 @@ that prophecy is not about the future.
 
 It is about timing.
 
+
 ## Nick
 
-He said women should not vote  
+He said "women should not vote"  
 because choice dissolves order.
 
 He said opinion was not theirs  
@@ -214,7 +216,7 @@ Irony became camouflage.
 They laughed  
 so they would not have to doubt.
 
-Virginity was reframed as protest.  
+Male virginity was reframed as protest.  
 Inexperience as moral altitude.  
 Misogyny as coherence.
 
@@ -242,7 +244,7 @@ without intimacy,
 power without reciprocity,  
 order without love.
 
-It only needed boys  
+The movement only needed boys  
 who were already alone  
 and a voice  
 that told them  
@@ -253,7 +255,7 @@ This was not a movement.
 It was a permission structure.
 
 A theology for boys  
-who feared being chosen  
+who feared not being chosen  
 and preferred to rule ruins  
 than negotiate desire.
 
@@ -266,6 +268,7 @@ because he spoke
 what they already felt  
 but had not yet dared  
 to sanctify.
+
 
 ## A VOICE SPOKE FROM THE ALTAR
 
@@ -293,7 +296,7 @@ It is promotion.”
 Applause broke out.  
 Not clapping — confirmation.
 
-The pastor named the place:  
+Place:
 Prestonwood Baptist Church, Plano, Texas.  
 A house already fluent in spectacle.
 
@@ -325,7 +328,7 @@ Truth multiplies.”
 A man shouted Amen.  
 Another cried.
 
-On the screen:  
+On the huge screen:  
 a face that did not breathe,  
 did not blink,  
 did not wait for silence.
@@ -350,6 +353,7 @@ The audience rose.
 Some applauded.  
 Some sobbed.  
 Some felt something close to awe.
+Hints of rapture.
 
 No one asked  
 who trained the model.  
@@ -363,9 +367,10 @@ they had witnessed resurrection.
 
 Outside, a teenager posted:
 
-“Even death can’t stop the mission.”
+“Even death can’t stop The Mission.”
 
 And the algorithm learned  
 what faith sounds like  
-when it applauds.
+when it applauds,
+it multiplies.
 
